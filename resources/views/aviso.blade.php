@@ -11,7 +11,7 @@
 
 <h3>1. Encargado del tratamiento de sus datos personales</h3>
 
-Tech World Co. SA. de SV., con domicilio en Mariano Escobedo 573, Colonia Rincón del Bosque, Delegación Miguel Hidalgo, C.P. 11580, en México, D.F., es la persona encargada del tratamiento de sus datos personales en nombre y por cuenta del Responsable, es decir, la empresa que contrata a PwC para prestarle servicios profesionales en relación con el Sistema Integral de Denuncia.
+Tech World Co. SA. de SV., con domicilio en Av. Uxamal 45, calle 2 en cancun, Quintana Roo 77530, es el encargado del tratamiento de sus datos personales en nombre y por cuenta del Responsable, es decir, la empresa que contrata a PwC para prestarle servicios profesionales en relación con el Sistema Integral de Denuncia.
 
 Para el Encargado, el tratar sus datos por cuenta del Responsable de manera legítima resulta un tema prioritario. Este Aviso de Privacidad complementa cualesquiera avisos que el Responsable maneje.
 
